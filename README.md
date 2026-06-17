@@ -65,34 +65,4 @@
 
 <p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
-<p align="center"> CURRENT INTEREST LIST
-  
-<p align="center"> - SFAWTFE/ATCDTL
-<p align="center"> - A_Regect
-<p align="center"> - FNAF
-<p align="center"> - Dandy's World
-<p align="center"> - Roblox Admins
-<p align="center"> - Roblox Myths
-<p align="center"> - Minecraft ARG but the protagonist is a monster fucker
-<p align="center"> - Regretevator
-<p align="center"> - The Last Guest
-<p align="center"> - Roblox GRACE
-<p align="center"> - TF2
-<p align="center"> - Eddsworld 
-<p align="center"> - Die of Death
-<p align="center"> - Pizza Game
-<p align="center"> - Undertale + Sans AU
-<p align="center"> - Luigi's Mansion (Or literally anything with Luigi in it)
-<p align="center"> - The Knocker , The Obsessed , The Man From The Shadows
-<p align="center"> - KinitoPet
-<p align="center"> - DHMIS
-<p align="center"> - Pressure
-<p align="center"> - Myth Of The Machine
-<p align="center"> - Doors + Rooms
-<p align="center"> - Minecraft Myths
-<p align="center"> - C00lkiddo Archives
-<p align="center"> - TADC
-<p align="center"> - Minesweeper Plus
-<p align="center"> - Freak Fortress 2
-<p align="center"> - Ocean Terror
-<p align="center"> - The Broken Script 
+<p align="center"> TIMOTHY WRIGHT AND BRIAN THOMAS YUMESHIPPER <3 [DOUBLES PLZ INT]
