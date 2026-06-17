@@ -58,7 +58,7 @@
 <p align="center"> - FNF
 <p align="center"> - JJBA
 <p align="center"> - JJK
-<p align="center"> - Sprunku
+<p align="center"> - Sprunki
 <p align="center"> - Country , App , State , Planet , ExtHumans
 <p align="center"> - Hazbin Hotel + Helluva Boss [Or anything made by Vivziepop at all]
 <p align="center"> - Forsaken
