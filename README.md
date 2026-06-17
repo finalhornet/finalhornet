@@ -1,5 +1,5 @@
 <p align="center"> Hi there. Quite nice to meet you!
-<p align="center"> You may call me Myst , Anon , or John
+<p align="center"> You may call me Myst , Anon , or Tim
 
 <p align="center"> <img src="https://pbs.twimg.com/media/FNYKTj3aIAEo_qD.jpg" alt="Proxies of Slenderman #Proxy #Proxies #MarbleHornets #Ticcitoby #hoodie  #Katethechaser #masky"/>
 
