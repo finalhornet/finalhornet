@@ -8,7 +8,7 @@
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
 
 <p align="center"> - AFAB but I go by any pronouns. I dont particularly go by xeno/neo pronouns but I dont care abt being called them
-<p align="center"> - LESBIAN ALL THE WAY BABY
+<p align="center"> - OMNI ALL THE WAY BABY
 <p align="center"> - Taken
 <p align="center"> - 18 years old
 <p align="center"> - Major Anti-Pro/Darkship
