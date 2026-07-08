@@ -9,7 +9,7 @@
 
 <p align="center"> - AFAB but I go by any pronouns. I dont particularly go by xeno/neo pronouns but I dont care abt being called them
 <p align="center"> - OMNI ALL THE WAY BABY
-<p align="center"> - Taken
+<p align="center"> - MUDPIES CEO!! GREEN X BROWN X YELLOW YESYESYES!! MUDPIES IS MY LIFE!!
 <p align="center"> - 18 years old
 <p align="center"> - Major Anti-Pro/Darkship
 <p align="center"> - Anti-Trump , Anti-Kirk
