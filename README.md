@@ -20,7 +20,7 @@
 <p align="center"> - Checks socials of everyone who ints with me, just in case
 <p align="center"> - Always sitting with my friends Meaw , Andrew , Noli , Brad [Main Group] or Ghost , Eddie , Silo [Others Who Are Not On As Often]
 <p align="center"> - Only adds friends on discord after speaking with them for a while
-<p align="center"> - Does not friend freely
+<p align="center"> - BMF IS ALWAYS OPEN [ I WILL NOT FRIEND ANYONE UNDER 15 OR WITH AGE RANGES OVER DIRECT AGE ]
 
 <p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
