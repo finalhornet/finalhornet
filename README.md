@@ -7,6 +7,7 @@
 
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
 
+<p align="center"> - IF I CATCH YO ASS FOLLOWING PONYTOWN'S UGLYIST I WILL UNFOLLOW YOU YO. IDC HOW CLOSE WE ARE, YOU 100% WILL BE UNFRIENDED, JOKE OR NOT. THAT SHIT GIVES ME THE MAJOR ICK
 <p align="center"> - AFAB but I go by any pronouns. I dont particularly go by xeno/neo pronouns but I dont care abt being called them
 <p align="center"> - OMNI ALL THE WAY BABY
 <p align="center"> - MUDPIES CEO!! GREEN X BROWN X YELLOW YESYESYES!! MUDPIES IS MY LIFE!!
