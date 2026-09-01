@@ -1,5 +1,5 @@
 <p align="center"> Hi there. Quite nice to meet you!
-<p align="center"> You may call me Myst , Anon , or Tim
+<p align="center"> You may call me Myst , Green , or Tim
 
 <p align="center"> <img src="https://pbs.twimg.com/media/FNYKTj3aIAEo_qD.jpg" alt="Proxies of Slenderman #Proxy #Proxies #MarbleHornets #Ticcitoby #hoodie  #Katethechaser #masky"/>
 
@@ -8,6 +8,7 @@
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
 
 <p align="center"> - IF I CATCH YO ASS FOLLOWING PONYTOWN'S UGLYIST I WILL UNFOLLOW YOU YO. IDC HOW CLOSE WE ARE, YOU 100% WILL BE UNFRIENDED, JOKE OR NOT. THAT SHIT GIVES ME THE MAJOR ICK
+<p align="center"> - CUDCOMF + COVERCOMF ALWAYS!!! Even if I don't have C+H in my name, my Cudcomf and Covercomf is always prominant unless my name states otherwise
 <p align="center"> - AFAB but I go by any pronouns. I dont particularly go by xeno/neo pronouns but I dont care abt being called them
 <p align="center"> - OMNI ALL THE WAY BABY
 <p align="center"> - MUDPIES CEO!! GREEN X BROWN X YELLOW YESYESYES!! MUDPIES IS MY LIFE!!
